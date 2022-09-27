@@ -1,3 +1,3 @@
-#Made by Kubicek sempai and Honzicek kun
+# Made by Kubicek sempai and Honzicek kun
 
 Dopici nebuzeruj dikcspapa
