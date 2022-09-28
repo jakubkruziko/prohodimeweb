@@ -1,4 +1,4 @@
-# Made by Kubicek sempai and Honzicek kun
+# Made by Kubicek~senpai and Mio~kun
 
 ## Prostě nejvíce popiči stránka
 na které většinu HTML dělal Honzicek uwu.
